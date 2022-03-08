@@ -50,4 +50,11 @@ Nowadays, it becomes possible to announce a standing offer to all comers that a 
 
 Until now, one central power - Putin - has had the ability to take decisions that destroy and negatively disrupts millions, if not billions, of peoples' lives. 
 
+### This war can stop.
+
 But now, people around the world have a new opportunity. We can create a decentralized system that gives everyone a way to stop Putin's war.
+
+There would be no need for the citizens of Ukraine and Russia to lose their sons and daughters in senseless violence. Together, all the affected people can unite (albeit anonymously, even from each other) and destroy the tyrant if he chooses to continue the wasteful war.
+
+Such system is an opportunity for people to come together for their self-defense.  
+All that self-defense requires is a few kilobytes of digital cash sent over fiber-optic cables.
