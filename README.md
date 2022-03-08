@@ -1,8 +1,8 @@
 # StopPutinDAO
 
-A dangerously effective way to stop the war…
+A dangerously effective way to stop the war in Ukraine…
 
-### A completely anonymous system where a cash prize would be awarded to somebody who correctly ‘predicted’ the death of the person violating human rights and conducting his army to war. 
+### A completely anonymous system where a cash prize would be awarded to somebody who correctly ‘predicted’ the death of the person violating human rights and leading his army to war. 
 
 The system would be set in place if the army chief refuses to stop the attack and withdraw all combat resources from the invaded area. 
 
