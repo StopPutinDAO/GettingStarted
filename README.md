@@ -4,21 +4,23 @@ A dangerously effective way to stop the war in Ukraine…
 
 ### A completely anonymous system where a cash prize would be awarded to somebody who correctly ‘predicted’ the death of the person violating human rights and leading his army to war. 
 
-The system would be set in place if the army chief refuses to stop the attack and withdraw all combat resources from the invaded area. 
+A peaceful alternative is possible. The system can be deactivated if Putin stops the attack and withdraws all combat resources from the invaded area.
 
-### Such system would:
+### Otherwise, the StopPutinDAO would:
 
-1. Keep the donors, as well as the predictors, absolutely anonymous, not only to the public and each other, but also to the system itself, either before or after the prediction comes true. 
+1. Allow anyone in the world to contibute financially to reward Putin's death.
 
-2. Ensure that neither the organization, nor the donors, nor the public, is aware of the contents of the "prediction" unless and until it later becomes true. 
+1. Allow anyone to "predict" his date of death, which they may or may not have had a hand in. Correctly predicting his death is rewarded with the pool of money contributed.
 
-3. Prove to the donors (including potential future predictors), the system, and the public that indeed, somebody predicted a particular death on a particular date, before it actually happened.
+1. Keep the donors, as well as the predictors, absolutely anonymous, not only to the public and each other, but also to the system itself.
 
-4. Prove to the donors and the public (including potential future predictors) that the amount of money promised was actually paid completely anonymously to whoever made the prediction that later came true.
+1. Prove to the donors, the system, and the public that indeed, somebody predicted a particular death on a particular date, before it actually happened.
 
-5. Anyone considering to collect that bounty could do so with the mathematical certainty that they could not be identified, and could collect the reward without meeting, or even talking to, anybody who could later identify them.
+1. Prove to the donors and the public (including potential future predictors) that the amount of money promised was actually paid (anonymously) to whoever made the prediction that later came true.
 
-6. Prevent the organization and the donors and the public from knowing, for sure, whether the predictor actually had anything to do with the death predicted.
+1. Anyone considering to collect that bounty could do so with the mathematical certainty that they could not be identified, and could collect the reward without meeting, or even talking to, anybody who could later identify them.
+
+1. Prevent the organization and the donors and the public from knowing, for sure, whether the predictor actually had anything to do with the death predicted.
 
 Imagine such system of powerful anonymity, secrecy, and security for ending war.
 
@@ -30,21 +32,21 @@ Imagine such system of powerful anonymity, secrecy, and security for ending war.
 
 Such system could receive anonymous contributions from the public, and individuals would be able to send those contributions using digital currencies. 
 
-By having such system, it becomes possible to make such bounty awards in a way that nobody knows who is getting awarded the money, only that the award is being given. 
+By having such a system, it becomes possible to make such bounty awards in a way that nobody knows who is getting awarded the money, only that the award is being given.
 
 Now the people at large don’t need to rely only on a few people to stop a threatening and abusive power such as Putin.
 
-The people can personally and anonymously fund such system and have immediate effects over a war situation.
+The people can personally and anonymously fund such a system and have immediate effects over a war situation.
 
 We don’t have to let innocent humans be killed and controlled.  
 We can set boundaries – withdraw the armed forces peacefully.  
 If this is refused, then the abuser is opening themselves up to a decentralized bounty system.  
 
-Having such system in place would give all us, around the world, the power to stop the killing of thousands of innocent people.
+Having such system in place would give all of us, around the world, the power to stop the killing of thousands of innocent people.
 
-Historically, it has been essentially impossible to adequately motivate an assassin, as it was impossible to ensure both their safety and anonymity. It’s been impossible to pay them in a form that nobody can trace, and to ensure the silence of all potential witnesses. Even if a person was willing to die in the act, they would want to know that the people they choose would get the reward, but if they themselves were identified they'd be targets of revenge.
+Historically, it has been very difficult to adequately motivate an assassin, as it was impossible to ensure both their safety and anonymity. It’s been impossible to pay them in a form that nobody can trace, and to *ensure* the silence of all potential witnesses. Even if a person was willing to die in the act, they would want to know that their chosen heirs would get the reward, but if the heirs were identified they'd be targets for revenge.
 
-Nowadays, it becomes possible to announce a standing offer to all comers that a large sum of digital currency will be sent to them in an untraceable fashion if they can meet a certain condition, which doesn't even have to include proving (or, for that matter, even claiming) that they were somehow responsible for the death.
+Nowadays, it becomes possible to announce a standing offer to all comers that a large sum of digital currency would be sent to them in an untraceable fashion if they can meet a certain condition, which doesn't have to include proving that they were actually responsible for the death, only that they correctly predicted it in advance.
 
 Until now, one central power - Putin - has had the ability to take decisions that destroy and negatively disrupts millions, if not billions, of peoples' lives. 
 
