@@ -58,3 +58,15 @@ There would be no need for the citizens of Ukraine and Russia to lose their sons
 
 Such system is an opportunity for people to come together for their self-defense.  
 All that self-defense requires is a few kilobytes of digital cash sent over fiber-optic cables.
+
+-----
+-----
+-----
+
+## Getting Involved
+
+Show your interest by taking at least one of these 3 steps:
+
+1. Post a message in this Github repo's [Issues page](https://github.com/StopPutinDAO/GettingStarted/issues)
+2. Join this Element chatroom: https://app.element.io/#/room/#stopputin:matrix.org
+3. Send a private email to cassius.77@tutanota.com
