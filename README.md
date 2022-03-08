@@ -45,3 +45,7 @@ Having such system in place would give all us, around the world, the power to st
 Historically, it has been essentially impossible to adequately motivate an assassin, as it was impossible to ensure both their safety and anonymity. It’s been impossible to pay them in a form that nobody can trace, and to ensure the silence of all potential witnesses. Even if a person was willing to die in the act, they would want to know that the people they choose would get the reward, but if they themselves were identified they'd be targets of revenge.
 
 Nowadays, it becomes possible to announce a standing offer to all comers that a large sum of digital currency will be sent to them in an untraceable fashion if they can meet a certain condition, which doesn't even have to include proving (or, for that matter, even claiming) that they were somehow responsible for the death.
+
+Until now, one central power - Putin - has had the ability to take decisions that destroy and negatively disrupts millions, if not billions, of peoples' lives. 
+
+But now, people around the world have a new opportunity. We can create a decentralized system that gives everyone a way to stop Putin's war.
