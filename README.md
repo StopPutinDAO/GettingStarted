@@ -1,4 +1,4 @@
-# Introduction to StopPutinDAO
+# StopPutinDAO
 
 A dangerously effective way to stop the war…
 
