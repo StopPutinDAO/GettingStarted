@@ -1,2 +1,27 @@
-# GettingStarted
-Introduction to StopPutinDAO
+# Introduction to StopPutinDAO
+
+A dangerously effective way to stop the war…
+
+### A completely anonymous system where a cash prize would be awarded to somebody who correctly ‘predicted’ the death of the person violating human rights and conducting his army to war. 
+
+The system would be set in place if the army chief refuses to stop the attack and withdraw all combat resources from the invaded area. 
+
+### Such system would:
+
+1. Keep the donors, as well as the predictors, absolutely anonymous, not only to the public and each other, but also to the system itself, either before or after the prediction comes true. 
+
+2. Ensure that neither the organization, nor the donors, nor the public, is aware of the contents of the "prediction" unless and until it later becomes true. 
+
+3. Prove to the donors (including potential future predictors), the system, and the public that indeed, somebody predicted a particular death on a particular date, before it actually happened.
+
+4. Prove to the donors and the public (including potential future predictors) that the amount of money promised was actually paid completely anonymously to whoever made the prediction that later came true.
+
+5. Anyone considering to collect that bounty could do so with the mathematical certainty that they could not be identified, and could collect the reward without meeting, or even talking to, anybody who could later identify them.
+
+6. Prevent the organization and the donors and the public from knowing, for sure, whether the predictor actually had anything to do with the death predicted.
+
+Imagine such system of powerful anonymity, secrecy, and security for ending war.
+
+- Would you want to contribute to building it?
+- Would you want to contribute funding?
+- Would you want to share it with others?
