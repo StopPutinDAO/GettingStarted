@@ -25,3 +25,23 @@ Imagine such system of powerful anonymity, secrecy, and security for ending war.
 - Would you want to contribute to building it?
 - Would you want to contribute funding?
 - Would you want to share it with others?
+
+### The power can be with the people, instead of a few
+
+Such system could receive anonymous contributions from the public, and individuals would be able to send those contributions using digital currencies. 
+
+By having such system, it becomes possible to make such bounty awards in a way that nobody knows who is getting awarded the money, only that the award is being given. 
+
+Now the people at large don’t need to rely only on a few people to stop a threatening and abusive power such as Putin.
+
+The people can personally and anonymously fund such system and have immediate effects over a war situation.
+
+We don’t have to let innocent humans be killed and controlled.  
+We can set boundaries – withdraw the armed forces peacefully.  
+If this is refused, then the abuser is opening themselves up to a decentralized bounty system.  
+
+Having such system in place would give all us, around the world, the power to stop the killing of thousands of innocent people.
+
+Historically, it has been essentially impossible to adequately motivate an assassin, as it was impossible to ensure both their safety and anonymity. It’s been impossible to pay them in a form that nobody can trace, and to ensure the silence of all potential witnesses. Even if a person was willing to die in the act, they would want to know that the people they choose would get the reward, but if they themselves were identified they'd be targets of revenge.
+
+Nowadays, it becomes possible to announce a standing offer to all comers that a large sum of digital currency will be sent to them in an untraceable fashion if they can meet a certain condition, which doesn't even have to include proving (or, for that matter, even claiming) that they were somehow responsible for the death.
