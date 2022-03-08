@@ -4,7 +4,7 @@ A dangerously effective way to stop the war in Ukraine…
 
 ### A completely anonymous system where a cash prize would be awarded to somebody who correctly ‘predicted’ the death of the person violating human rights and leading his army to war. 
 
-A peaceful alternative is possible. The system can be deactivated if Putin stops the attack and withdraws all combat resources from the invaded area.
+A peaceful alternative is possible. The reward can be deactivated, and everyone's money returned to them, if Putin stops the attack and withdraws all combat resources from the invaded area.
 
 ### Otherwise, the StopPutinDAO would:
 
